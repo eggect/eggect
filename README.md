@@ -3,7 +3,7 @@
 <img src="https://u.cubeupload.com/Dagasi/22sinttulo2026021917.png" width="573">
 
 ﹙***♡***﹚⋮  ݂  𝓈𝑤e**e**t ۫ ㅤ *and* ㅤ 𓈒 ۪ ㅤ **pre***t*t***𝑦*** ㅤ ׁㅤ  bα*b𝑦*   ༷—  
-︵ 𓈒 𝒍i***n****k*𝒔ㅤ۫ ׅㅤ<a href="https://dagasi.atabook.org"> **➊**</a>ㅤ<a href="https://rentry.co/nolidestroy"> **②** </a>ㅤ<a href="https://x.com/zemalewife"> **➌** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> **④** </a> ㅤㅤㅤ₊ㅤ˚ ㅤ♡ 
+︵ 𓈒 𝒍i***n****k*𝒔ㅤ۫ ׅㅤ<a href="https://dagasi.atabook.org"> **➊**</a>ㅤ<a href="https://rentry.co/nolidestroy"> **②** </a>ㅤ<a href="https://x.com/zemalewife"> **➌** </a>ㅤ<a href="https://cry4me.straw.page"> **④** </a> ㅤㅤㅤ₊ㅤ˚ ㅤ♡ 
 
 ***𝒅***a*g*𝒂𝒔**i**ㅤᵒʳ**𝒇**𝒖*f*𝒊𝒕***o*** ㅤㅤㅤ 𓎢𓎟𓎡 ‿◞ ㅤㅤㅤh**𝒆** / h𝒊*m* ㅤㅤㅤㅤ𓈒   ̣̣ ۟ ୨ 𓏼   
 <a href="https://docs.google.com/document/d/1cuuH5ho0J6X_YExap40CTT1pAbMCFGA4fIjSATf2XLo/edit?usp=drivesdk"> ⚑   ۟     ֹ  ︵</a>ㅤㅤ˖   ㅤㅤ ⇦ ㅤㅤ  ۫ *𝒊n*s*𝒐*𝒎n’s ˳ 𝑑o*c*     ݂ ۪  ⊹
