@@ -3,6 +3,6 @@
 <img src="https://u.cubeupload.com/Dagasi/22sinttulo2026021917.png" width="573">
 
 ﹙***♡***﹚⋮  ݂  𝓈𝑤e**e**t ۫ ㅤ *and* ㅤ 𓈒 ۪ ㅤ **pre***t*t***𝑦*** ㅤ ׁㅤ  bα*b𝑦*   ༷—  
-<a href="https://littlecoolkid.atabook.org"> ***➊***</a>ㅤ<a href="https://littlecoolkid.atabook.org"> ***②*** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> ***➌*** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> ***④*** </a>
+︵ 𓈒 𝒍i***n****k*𝒔ㅤ۫ ׅㅤ<a href="https://littlecoolkid.atabook.org"> **➊**</a>ㅤ<a href="https://littlecoolkid.atabook.org"> **②** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> **➌** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> **④** </a> ㅤㅤㅤ₊ㅤ˚ ㅤ♡ 
 
 <a href="https://docs.google.com/document/d/1cuuH5ho0J6X_YExap40CTT1pAbMCFGA4fIjSATf2XLo/edit?usp=drivesdk"> ⌗ . </a>ㅤㅤinsomn’s doc , read carefully ! 
