@@ -7,7 +7,8 @@
 
 <img src="https://u.cubeupload.com/Dagasi/25sinttulo2026022022.png" width="390">
 
-***𝒅***a*g*𝒂𝒔**i**ㅤᵒʳ**𝒇**𝒖*f*𝒊𝒕***o*** ㅤㅤㅤ 𓎢𓎟𓎡 ‿◞ ㅤㅤㅤh**𝒆** / h𝒊*m* ㅤㅤㅤㅤ𓈒   ̣̣ ۟ ୨ 𓏼   
+***𝒅***a*g*𝒂𝒔**i**ㅤᵒʳ**𝒇**𝒖*f*𝒊𝒕***o*** ㅤㅤㅤ 𓎢𓎟𓎡 ◞ ㅤㅤㅤh**𝒆** / h𝒊*m* ㅤㅤㅤㅤ𓈒   ̣̣ ۟ ୨ ㅤㅤ  ***1***6 𝑦*r***s**
+
 <a href="https://docs.google.com/document/d/1cuuH5ho0J6X_YExap40CTT1pAbMCFGA4fIjSATf2XLo/edit?usp=drivesdk"> ⚑   ۟     ֹ  ︵</a>ㅤㅤ˖   ㅤㅤ ⇦ ㅤㅤ  ۫ *𝒊n*s*𝒐*𝒎n’s ˳ 𝑑o*c*     ݂ ۪  ⊹
 
 
