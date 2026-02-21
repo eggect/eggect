@@ -5,6 +5,5 @@
 ﹙***♡***﹚⋮  ݂  𝓈𝑤e**e**t ۫ ㅤ *and* ㅤ 𓈒 ۪ ㅤ **pre***t*t***𝑦*** ㅤ ׁㅤ  bα*b𝑦*   ༷—  
 ︵ 𓈒 𝒍i***n****k*𝒔ㅤ۫ ׅㅤ<a href="https://littlecoolkid.atabook.org"> **➊**</a>ㅤ<a href="https://littlecoolkid.atabook.org"> **②** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> **➌** </a>ㅤ<a href="https://littlecoolkid.atabook.org"> **④** </a> ㅤㅤㅤ₊ㅤ˚ ㅤ♡ 
 
-***𝓓****ag*𝒂𝒔**i**ㅤㅤ   𓎢𓎟𓎡 ‿◞ ㅤㅤㅤhe / him ㅤㅤㅤㅤ𓈒   ̣̣ ۟ ୨ 𓏼   
-
-<a href="https://docs.google.com/document/d/1cuuH5ho0J6X_YExap40CTT1pAbMCFGA4fIjSATf2XLo/edit?usp=drivesdk"> ⚑   ۟     ֹ  ︵</a>ㅤㅤ˖   ㅤㅤ ⇦ ㅤㅤ  ۫ *𝒊n*s*𝒐*𝒎n’s ˳ 𝑑oc     ݂ ۪  e⊹
+***𝒅***a*g*𝒂𝒔**i**ㅤᵒʳ**𝒇**𝒖*f*𝒊𝒕***o*** ㅤㅤㅤ 𓎢𓎟𓎡 ‿◞ ㅤㅤㅤh**𝒆** / h𝒊*m* ㅤㅤㅤㅤ𓈒   ̣̣ ۟ ୨ 𓏼   
+<a href="https://docs.google.com/document/d/1cuuH5ho0J6X_YExap40CTT1pAbMCFGA4fIjSATf2XLo/edit?usp=drivesdk"> ⚑   ۟     ֹ  ︵</a>ㅤㅤ˖   ㅤㅤ ⇦ ㅤㅤ  ۫ *𝒊n*s*𝒐*𝒎n’s ˳ 𝑑o*c*     ݂ ۪  ⊹
